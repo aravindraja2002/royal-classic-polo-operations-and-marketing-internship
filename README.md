@@ -1,0 +1,2 @@
+# royal-classic-polo-operations-and-marketing-internship
+MBA Final-year internship project - Royal Classic Mills (Classic Polo), Tiruppur. A unit-by-unit study of how a fibre-to-fashion apparel manufacturer works, from knitting and dyeing to quality, packing and delivery, with a marketing and SWOT analysis ,15 production and supply units, from e-commerce analyses the marketing strategy and brand growth.
